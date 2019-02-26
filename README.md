@@ -26,3 +26,6 @@ big data, machine learning, DNNs
 
 
 Захват мира :-) 
+
+
+**НАПИСАТЬ:** hr@rcntec.com
